@@ -1,7 +1,7 @@
 m- 👋 Hi, I’m @fertyks
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...123
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...ds
 - 📫 How to reach me ...461
 - 😄 Pronouns: ...dg
 - ⚡ Fun fact: ...22
