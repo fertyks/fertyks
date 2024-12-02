@@ -8,6 +8,6 @@ m- 👋 Hi, I’m @fertyks
 
 <!---
 fertyks/fertyks is a ✨ special ✨ repository because its 123README.md` (this file) appears on your GitHub profil455e.
-You can click the Preview link to take a look at your changes.
+You can click the Preview link to take a look at your changes.f
 --->
 ds
