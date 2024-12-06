@@ -7,7 +7,7 @@ m- 👋 Hi, I’m @fertyks
 - ⚡ Fun fact: ...22
 
 <!---
-fertyks/fertyks is a ✨ special ✨ repository because its 123README.md` (this file) appears on your GitHub profil455e.
+fertyks/fertyks is a ✨ special ✨ repository becauseasf its 123README.md` (this file) appears on your GitHub profil455e.
 You can click the Preview link to take a look at your changes.f
 --->
 ds
