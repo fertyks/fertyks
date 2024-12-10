@@ -3,7 +3,7 @@ m- 👋 Hi, I’m @fertyks
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461
-- 😄 Pronouns: ...dg543wersfd
+- 😄 Pronouns: ...dg543wersfdzz
 - ⚡ Fun fact: ...22
 
 <!---
