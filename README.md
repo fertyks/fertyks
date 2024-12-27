@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461
-- 😄 Pronouns: ...dg543wersfdzzasd45
+- 😄 Pronouns: ...dg543wersfdzzasd45wre
 - ⚡ Fun fact: ...22
 
 <!---
