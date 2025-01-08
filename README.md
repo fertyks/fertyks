@@ -3,7 +3,7 @@ nhng32m- 👋 Hi, I’m @fertyks
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461
-- 😄 Pronouns: ...dg543wersfdzzasd45wre
+- 😄 Pronouns: ...026
 - ⚡ Fun fact: ...22dfggdf
 
 <!---rht
