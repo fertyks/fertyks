@@ -1,5 +1,5 @@
 422nhng32m- 👋 Hi, I’m @fertyks
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...sef
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461jnm
