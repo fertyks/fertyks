@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461jnm
-- 😄 Pronouns: ...026
+- 😄 Pronouns: ...596+
 - ⚡ Fun fact: ...22dfggdf213uujt
 <!---rhtwqe
 fertyks/fertyks is a ✨ special ✨ repository becauseasf its 123README.md` (thsdfis file) appears on your GitHub profil4az5ewf5e366
