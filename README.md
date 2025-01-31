@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...dsrew
 - 📫 How to reach me ...461jnm
 - 😄 Pronouns: ...596+
-- ⚡ Fun fact: ...22dfggdf213uujt
+- ⚡ Fun fact: ...22dfggdf213uujtgfb
 <!---rhtwqe
 fertyks/fertyks is a ✨ special ✨ repository becauseasf its 123README.md` (thsdfis file) appears on your GitHub profil4az5ewf5e366
 You can click the Preview link to take a look at your changes.fwewwcvbvcb
