@@ -2,7 +2,7 @@ dfdffhthzxczcxccvbhrtdsdsds422nhng32m- 👋 Hi, I’m @fertyks45
 - 👀 I’m interested in ...sef
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrewrgeethggbfg
-- 📫 How to reach me ...461jnmcvb333+uidsffd
+- 📫 How to reach me ...461jnmcvb333+uidsffdhng
 - 😄 Pronouns: ...596+xcvjhmhjcxvsdfsdf
 - ⚡ Fun fact: ...22dfggdf213uujtgfbwewww662xaddsreg
 <!---rhtwqeddssdfgbdfgiuiuig554
