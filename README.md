@@ -1,4 +1,4 @@
-dfdffhthzxczcxccvbhrtdsdsds422nhng32m- 👋 Hi, I’m @fertyks45
+fbfdfdffhthzxczcxccvbhrtdsdsds422nhng32m- 👋 Hi, I’m @fertyks45
 - 👀 I’m interested in ...sef
 - 🌱 I’m currently learning ...123
 - 💞️ I’m looking to collaborate on ...dsrewrgeethggbfg3432wbfgb
