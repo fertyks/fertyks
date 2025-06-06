@@ -1,7 +1,7 @@
 jaqwqawgregrefdcxfbfdfdffhthzxczcxccvbhrtdsdsds422nhng32m- 👋 Hi, I’m @fertyks45
 - 👀 I’m interested in ...sefxcvcv
 - 🌱 I’m currently learning ...123
-- 💞️ I’m looking to collaborate on ...dsrewrgeethggbfg3432wbfgbhsssvcxxc
+- 💞️ I’m looking to collaborate on ...dsrewrgeethggbfg3432wbfgbhsssvcxxc78987788
 - 📫 How to reach me ...461jnmcvb333+uidsffdhhyjhyhrhtrrthsdffdsdscxxmjnvhgvkjhkjzcxzxrfeddytjyhjgh5256vfdfdfwqaawqss
 - 😄 Pronouns: ...596+xcvjhmhjcxvsdfsdfvcxbfgfgfgdddsddssdzzxxttttmhjmjhbnbdfcfbnn
 - ⚡ Fun fact: ...22dfggdf213uujtgfbwewww662xaddsregnbbnregegrsdsdsdfgfdvcccbnmbn
